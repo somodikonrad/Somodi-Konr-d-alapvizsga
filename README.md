@@ -1,0 +1,1 @@
+# Somodi-Konr-d-alapvizsga
